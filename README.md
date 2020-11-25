@@ -8,3 +8,7 @@ F: Quiero dormir profundamente... y no despertar llorando con la pena de no vert
 C: Quiero dormir cansado, y no despertar jamás
 
 F: Quiero dormir eternamente porque estoy enamorado, y ese amor no me comprende
+
+CF: Durmiendo, vivir durmiendo! Soñando, vivir soñando!
+
+
