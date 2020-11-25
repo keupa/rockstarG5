@@ -3,7 +3,8 @@
 
 C: Quiero dormir cansado, para no pensar en ti... 
 
+F: Quiero dormir profundamente... y no despertar llorando con la pena de no verte
 
-F: Porque estoy enamorado... con la pena de no verte
+C: Quiero dormir cansado, y no despertar jamás
 
-C: durmiendo vivir durmiendo, soñando vivir soñando 
+F: Quiero dormir eternamente porque estoy enamorado, y ese amor no me comprende
