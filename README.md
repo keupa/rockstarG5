@@ -11,4 +11,9 @@ F: Quiero dormir eternamente porque estoy enamorado, y ese amor no me comprende
 
 CF: Durmiendo, vivir durmiendo! Soñando, vivir soñando!
 
+☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆
 
+
+:):):)
+
+*＊✿❀　❀✿＊*
